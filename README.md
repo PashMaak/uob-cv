@@ -1,1 +1,0 @@
-https://pashmaak.github.io/rsschool-cv/
